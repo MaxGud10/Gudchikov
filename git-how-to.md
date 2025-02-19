@@ -1,2 +1,1 @@
-CFVJT ,TCGJKTPYJT PFYZNBT
-jngno4c  
+НЕТ, Я НЕ БУДУ ЭТИМ ЗАНИМАТЬСЯ 
